@@ -1,1 +1,1 @@
-Cennet'ten kovulan Adem, Havva ve Lucifer (kadın formunda) yeryüzüne düşer ve birbirlerinden ayrılır. Adem, zamanla Lucifer'le karşılaşır ve onun manipülasyonuyla birleşirler. Bu ilişkiden Kabil doğar. Ancak Adem, pişmanlık duyarak Lucifer'den ayrılır ve Havva'yı bulur. Onlardan da Habil dünyaya gelir.
+Cennet'ten kovulan Adem, Havva ve Lucifer (kadın formunda) yeryüzüne düşer ve birbirlerinden ayrılır. 
